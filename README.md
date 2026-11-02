@@ -1,2 +1,2 @@
-# Scoras_Codes
+# Scoras_Academy
 
